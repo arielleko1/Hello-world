@@ -2,4 +2,4 @@
 first steps
 
 Hiiiii
-just lreaning here:D
+just learning here:D
